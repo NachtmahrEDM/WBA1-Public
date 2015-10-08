@@ -7,4 +7,6 @@ Gruppenmitglieder sind:
 -Tim P.
 -Lilly K.
 
+Thema ist bekannt: Ajax, Ausarbeitung
+
 Über konstruktive Kritik und Kommentare freuen wir uns!!!einself11
