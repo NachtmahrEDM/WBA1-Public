@@ -2,3 +2,9 @@
 Our public Repo for everything that has to do with WBA1
 
 Code and Stuff will be uploaded here, maybe!
+
+Gruppenmitglieder sind:
+-Tim P.
+-Lilly K.
+
+Über konstruktive Kritik und Kommentare freuen wir uns!!!einself11
